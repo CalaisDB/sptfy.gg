@@ -103,5 +103,3 @@ E-mail: sptfy.gg@proton.me
 This Privacy Policy entered into force on 02/10/2024.
 
 Last updated: 02/10/2024
-
-Translated with DeepL.com (free version)
