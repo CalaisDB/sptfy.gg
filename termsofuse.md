@@ -46,7 +46,7 @@ We reserve the right to change these Terms of Use at any time. Changes will be e
 
 ## Governing Law and Jurisdiction
 
-These Terms of Use shall be governed by and construed in accordance with the laws of [country/state name]. In the event of any dispute arising out of these terms, the courts of [city/state name] shall have exclusive jurisdiction.
+These Terms of Use shall be governed by and construed in accordance with the laws of Turkey. In the event of any dispute arising out of these terms, the courts of Turkey shall have exclusive jurisdiction.
 
 ## 11. Contact
 
